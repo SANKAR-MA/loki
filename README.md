@@ -1,3 +1,7 @@
 # loki
-This world is the beautiful thing in the world .
+is wore beautiful thing in the world .
 spedd thrills but kills .
+sjdygskigdfs
+dfjukghkifs
+fihgrolwkg
+sdkughdfgh
